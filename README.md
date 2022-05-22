@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Slawver15, I am a Sophomore in college and studying in CS
+- 👀 I’m interested in web3 and the blockchain
+- 🌱 I’m currently learning everything 
+- 💞️ I’m looking to collaborate on anything
+- 📫 How to reach me email: slawver15@gmail.com
